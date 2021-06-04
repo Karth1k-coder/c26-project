@@ -2,7 +2,7 @@ Best chocolate cake recipe
 
 Ingredients
 1 cup self-raising flour
-3 tbs cocoa powder
+3 tbs cocoa powder 
 250g Lurpak* Butter
 1/2 cup caster sugar
 1 tsp vanilla essence
